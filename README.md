@@ -1,3 +1,3 @@
-#### 🐙 Hello Everyone! My name is Teoxex, I live in Italy and I like drawing Pixel Arts, especially things about Minecraft and Terraria!
+#### Learning Pixel Art, Sometimes I make texture packs for Minecraft too.
 
-#### 🌳 All my Links here: https://linktr.ee/teoxex
+#### ko-fi.com/teoxex
